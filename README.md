@@ -60,5 +60,5 @@ Mental health is just as important as physical health, and Check Your Mental Hea
 💬 Contact & Support
 Have questions or feedback? We’d love to hear from you!
 
-Email: krishnanandmishra386@gmail.com
-LinkedIn: https://www.linkedin.com/in/coder-krishna-nand-mishra/
+Email:amirchoudharyb09@gmail.com
+LinkedIn: https://www.linkedin.com/in/contactamirchoudhary09/
