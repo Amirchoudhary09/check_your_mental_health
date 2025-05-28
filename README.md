@@ -75,5 +75,5 @@ Mental health is vital. With **Check Your Mental Health**, we aim to make care a
 
 Have questions or feedback? Let’s connect!
 
-**Email**: amirchoudhary09@gmail.com  
-**LinkedIn**: [Amir Choudhary](https://www.linkedin.com/in/amirchoudhary09/)  
+**Email**: amirchoudhary03@gmail.com  
+**LinkedIn**: https://www.linkedin.com/in/contactamirchoudhary09/
